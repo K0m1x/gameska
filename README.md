@@ -1,0 +1,2 @@
+# gameska
+gameska jak svina
